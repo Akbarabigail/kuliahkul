@@ -1,1 +1,1 @@
-ini tugas 
+bang beli bawang
